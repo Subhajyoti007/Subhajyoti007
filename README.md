@@ -4,7 +4,7 @@
 <h3 align="center">A passionate developer from India</h3>
 
 # 💫 About Me:
-🌱 I’m currently learning Master's Of Computer Application<br><br>💬 Ask me about AI, Ml, Problem Solving.<br><br>📫 How to reach me mondal1998subhajyoti@gamil.com<br><br>📄 Know about my experiences [https://drive.google.com/file/d/1arisnagX021PFcN36IbwdZTAPMWEvLIo/view?usp=share_link]
+🌱 I’m currently learning Master's Of Computer Application<br><br>💬 Ask me about AI, Ml, Problem Solving.<br><br>📫 How to reach me mondal1998subhajyoti@gamil.com<br><br>📄 Know about my experiences [https://drive.google.com/file/d/1pvVEC4pFgDmdiAZdg1JqaHHrZDjg3kpc/view?usp=sharing]
 
 
 ## 🌐 Socials:
